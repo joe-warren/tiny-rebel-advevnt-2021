@@ -169,3 +169,17 @@ Strong, and sweet, in a lot of ways, similar to day 1.
 Lots of interesting spicy notes that I don't think I can enumerate without sounding a bit wanky, but in two words, spicy and juicy.
 Can say's it's using "Abbaye yeast", which is a Belgian ale yeast, and there's no denying that this hits a lot of typical "Belgian beer" notes.
 I'm a sucker for strongish Belgian beers, so I really like this, it's not "just another IPA".
+
+## 18: Christmas Cake Belgian Quadrupel - 12%
+eye/nose/taste: christmas cake
+
+Tastes dense and boozy, like a good Christmas cake, maybe not quite as dense as I'd like.
+With the exception of the fact that it's relatively highly carbonated, this is weirdly unsurprising. 
+Notes of fruits, and nuts, much like a Christmas cake; Dark, dense, and sweet (but not _as sweet_ as it could have been), much like a Christmas cake; Gorgeous vibrant pink can, okay maybe there the comparison falls down.
+I do like this, although at the top of the glass, I wrote the following: I felt like I was expecting to like it more; although it's _modestly_ dark and rich, I think I'd like this to taste darker and richer.
+As I'm moving father down it, I'm liking this more and more, and while it could be the effect of the alcohol, I think it was probably just over chilled when I started, so maybe that's on me. 
+Definitely getting the "Christmas cake fruits", raisins and sultanas et cetera , no complaints about the extent to which this approximates a cake. 
+Ignoring the cakiness, which is excellent, it's not doing a huge amount else, I don't know why they're calling it a "Belgian Quadrupel" per say: don't infuse it with Christmas cake ingredients and you could sell this as an imperial stout.
+With that said, the Christmas cake flavour carries it; Seasons Greetings!
+
+
