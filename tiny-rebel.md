@@ -1,3 +1,42 @@
+## 01- Citra on Mosaic Cryo Triple IPA - 10% 
+eye: golden, nose: citrus, taste: stonefruit
+
+They're clearly starting with a _big_ beer (440ml 10%), it's 10%, and tastes like a 10% beer. 
+It's rich and creamy, very slight note of sharp citrussy flavour, but the overarching sensation is "this is going to put me to sleep".
+I think it's pretty well balanced, not one of those "overly hoppy" IPAs that people bitch about, you can taste the hops, but they're an afternote, behind the malty beery. 
+Colour's gold, it's relatively murky, little bit of head too (decent carbonation). 
+I can see why you'd open with this, although it's almost like a pressure drop beer, fancy, but not too mad; I'm hoping the later beers get a little more bonkers.  
+
+## 02 - Watermelon and Mint Lil IPA - 4.5%
+eye: pink, nose: mint, taste watermelon
+
+This is _interesting_, it's quite sharp, which I like. 
+I'm getting more of the mint than I am watermelon. 
+This is probably a good thing, but the end result is quite herby. 
+There are _notes_ of watermelon, but I found you really had to go looking for them whereas the mint was _right there_; I keep having flashbacks to lamb chops that I've eaten over the years. 
+If anything, I think the tasting notes are backwards, the watermelon comes across more on the scent, whereas the taste is mostly mint. 
+It's possible that of the two flavours, I'm just more familiar with mint (eat a fair amount of it, magical in a bulgur wheat salad - haven't had watermelon in years).
+
+Colour's good, still a little cloudy, but not so much as beer No.1, the pinkness is understated, but attractive. 
+
+Considering the blurb calls it "Juicy" it's pretty dry. 
+It's definitely "actual watermelon taste" as opposed to "fake watermelon flavoured". 
+
+Don't get me wrong, it's very nice, just not _quite_ what I was expecting – I'm glad the concept is more zany than the first beer – the execution is perhaps a little serious.  
+
+## 03 - Imperial Porter - 10%
+eye: midnight, nose: treacle, taste: cocoa
+
+I'm a big fan of dark beers, and this is, in my opinion, smashing. 
+I get the cocoa comparison, it's strong, rich and puddingy, while still delivering on that classic "imperial stout" flavour. 
+It's pretty nice that this is wintery, definitely a seasonal beer. 
+
+I wish I had more of this, it's the first 330ml one in the box. On the other hand, it's hilarious that I'm going to come out of having _just_ drunk one small can of beer feeling relatively drunk. 
+
+Like Beer 01, it's quite sweet and creamy, but IMO, the relative darkness, heaviness and intensity of flavour means it carries that, if it wasn't it'd risk being too bitter. 
+
+
+
 ## 04: Talus on Simcoe Neipa - 7%
 eye: hazy, nose: guava, taste: grapefruit
 
@@ -53,6 +92,37 @@ I'm not really sure what makes this Italian, it's a German style pilsner, and th
 
 Still, while we're six months away from the part of the year when I'd _really_ enjoy this, it's a reasonable tipple.
 
+## 10 - Chocolate and Hazelnut Waffle - 6.5%
+eye: dark, nose: nutella, taste: nutella
+
+This was the one beer I (we?) was psyched for before getting the box, and you might expect it to be anticlimactic, by definition.
+
+I actually think it hits all the notes I might have conceivably wanted. 
+Perfectly serviceable chocolate stout, which again, is the kind of thing that I _really like_; black as the devil and sweeter than a stolen kiss ; richer and creamier than Jeff Bezos in a dairy.
+The hazelnut notes come through, and also complement the chocolate really well (this isn't surprising, because Nutella works).
+I'm not _really_ getting anything that I'd describe as waffle, without really squinting, although I don't know how I'd distinguish waffle from "regular malty beer taste", and two out of three of the intended flavours isn't bad.
+Anyway, I fully expect this to be the highlight of the box, so it's all downhill from here.
+
+## 11 - Cold Fermented IPA - 5.5% 
+eye: straw, nose: gooseberry, taste: crisp
+
+If my baseline for "interesting tiny-rebel beers" wasn't "jam doughnut flavour", this would qualify as pretty interesting. 
+It's worth caveating today's notes with the fact that I'm the kind of knackered where pretty much anything would make me think "mnn, delicious beer", so this isn't me at my most critical.
+It's well balanced, not too eccentric, but very crisp, bordering on tart, I overuse the word "refreshing", but it fits. 
+While I'm not a huge believer in tasting notes, I'm genuinely getting gooseberry. 
+Despite the initial hit of crispness, there are some more bitter, nuanced notes, that take a little longer to hit, and linger further back on the tongue. 
+Attractive eye, relatively clear by the standards of the box, and a decent level of carbonation.
+
+## 12 - Blue Raspberry and Cotton Candy Sour - 4.8%
+eye: blue, nose: sweetshop, taste candy. 
+
+On one level, yes, we're back on the bullshit!
+With that said, this doesn't really work for me, while it goes _relatively_ hard on the blue raspberry, this isn't a sour by any stretch of the imagination. 
+If you've ever had a Bacchus Framboise, it's not lightyears away from that, possibly somewhat sweeter, definitely not quite as good, even compared to the more modern recipe Bacchus Framboise, as opposed to the far superior Bacchus Framboise of my youth. 
+The taste's not terrible, but the name suggested that it was going to have more oomph, and it doesn't.
+Colour is great; back when I was reviewing Fantas, I had a Pepsi Blue delivered alongside the Fantas, and described that as looking like a "cross between a molten Sonic the Hedgehog, and an as yet unused chemical toilet". 
+This isn't quite that bad, but it's close, although I'm 100% of the opinion that, in a box of novelty advent calender beers, the appearance of something with these visuals is 100% a good thing.
+It's nice to get something a bit "fruitier", but I couldn't hand on heart claim this was to my taste.
 
 ## 13: Shandy Bassy - 2.5%
 eye: chessnut, nose: beer, taste: shandy
@@ -62,7 +132,6 @@ First things first, great name, great can design.
 While you might reasonably be disapointed by getting a can of shandy in a beer box, I can forgive it as only 4% of the total beers.
 Also, my shameful secret is that I genuinely enjoy a good shandy, and this is a legitimately good shandy.
 Dark, crisp and damn mellow, by which I think I mean bitter, maybe a little too far on the dry side, but flavour wise there's a lot going on.
-
 
 ## 14: Florida Orange IPA - 4.5%
 eye: orange, nose: orange, taste: orange
