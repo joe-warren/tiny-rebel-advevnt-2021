@@ -211,4 +211,13 @@ With that said, why make this a 440ml.
 It's quite boozy too, which is certainly makes the whole glass seem a bit daunting".
 Who looked at the "bloody mary" beer, and thought "yeah, this is one of the ones that people are going to want a _big glass_ of"?
 
+## 21: Style: Raspberry Ripple and White Chocolate Cheesecake: 4.8%
+eye/nose/taste: see style
 
+This is really heavy on the raspberry, and I love it.
+It also contains "biscuits, white chocolate and vanilla", all of which are there, but none of which are quite as central.
+
+Apart from "woo, raspberry", my main thought is "this is damn smooth".
+Just sweet enough, not tart, but a hint of acidity from the fruit, really silky texture, floral notes from the vanilla that linger on the tongue, it's a struggle not to just plow straight through this.
+
+Best fruit beer in the box so far.
