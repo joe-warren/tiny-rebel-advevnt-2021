@@ -182,4 +182,33 @@ Definitely getting the "Christmas cake fruits", raisins and sultanas et cetera ,
 Ignoring the cakiness, which is excellent, it's not doing a huge amount else, I don't know why they're calling it a "Belgian Quadrupel" per say: don't infuse it with Christmas cake ingredients and you could sell this as an imperial stout.
 With that said, the Christmas cake flavour carries it; Seasons Greetings!
 
+## 19: Sour Froozzi : 8.5%
+eye: hazy, nose tropical, taste papaya
+
+Going off of this, and the cherry sour, I'm starting to feel like the tiny-rebel people don't realize quite how sour a sour beer should be.
+I'm thinking of mailing them a bag of citric acid crystals, and a note.
+I'd describe this as tangy at best; drinking a sour beer should be like licking a battery.
+
+Flavour is good, it's damn fruity, strawberry, papaya and kiwi, papaya's the more dominant of the three.
+Could stand to be a bit less sweet, it's verging towards one of those fruit ciders.
+
+Not terrible, but too much sweet, not enough sour.
+
+## 20: Bloody Mary: 7.9%
+eye/nose/taste: Bloody Mary
+
+First off, I'm one hundred percent here for any beer where the label pretty much says "Ha Ha, you suckers actually have to drink this". 
+
+I have some questions.
+
+It tastes of tomato paste and lea and perrins, which I might argue shouldn't be the dominant flavour of a bloody mary, I can't be the only person who want's a good bloody mary to taste spicy? Apparently this contains tobasco, but I'd be interested to try this with more of that.
+Also, tomato juice doesn't taste all that similar to tomato puree? I feel like this comes pretty close to tasting like a cheap mini pizza.
+It's an interesting red colour, but is there not a limit to how close you can get beer to look like a bloody mary.
+
+Still, it's not _terrible_, and I like that they've managed to make something that sounds this wild, isn't sweet, and tastes okay. It's definitely a different category of beast to the cherry sour.
+
+With that said, why make this a 440ml.
+It's quite boozy too, which is certainly makes the whole glass seem a bit daunting".
+Who looked at the "bloody mary" beer, and thought "yeah, this is one of the ones that people are going to want a _big glass_ of"?
+
 
