@@ -221,3 +221,18 @@ Apart from "woo, raspberry", my main thought is "this is damn smooth".
 Just sweet enough, not tart, but a hint of acidity from the fruit, really silky texture, floral notes from the vanilla that linger on the tongue, it's a struggle not to just plow straight through this.
 
 Best fruit beer in the box so far.
+
+## 22: Style: Cranberry and Pineapple Holy Fuck Sour : 4.2%
+eye: red, nose: crantastic, taste: tangfastic
+
+Tastes like tiny rebel finally figured out what a sour beer should be like; it's damn acidic, which I'm damn happy about.
+
+Smells _kinda_ like a sweet shop, although this has nothing to do with rhubarb, I'm reminded of those rhubarb and custard sweets, only maybe dipped in citric acid. 
+The scent and the taste are quite different.
+Cranberry and pineapple both come through, although generally not at the same time. 
+I'm not sure I've ever thought about pairing those two fruits before, but I think it works.
+It's difficult to tell how much of the acidity is coming from the fruit vs the beer, it's probably not a coincidence that the first _actually sour beer_ is flavoured with quite a sour fruit. 
+I don't want to be two fussy about "the only real sours are kettle soured" or whatever, I'm not past stirring citric acid crystals into a punk IPA on occasion, I rate this. 
+
+
+
