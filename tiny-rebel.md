@@ -235,4 +235,12 @@ It's difficult to tell how much of the acidity is coming from the fruit vs the b
 I don't want to be two fussy about "the only real sours are kettle soured" or whatever, I'm not past stirring citric acid crystals into a punk IPA on occasion, I rate this. 
 
 
+23: Simcoe on Citra Cryo Neipa : 6.9%
+
+I think this is the last bog standard IPA in the box, although it's a decent one. 
+Pale colour, cloudy, light. 
+Somewhat citrissy hoppy flavour; sharp and tangy. 
+
+While they've been a mixed bag on the whole, I'm more than happy enough with this to send the advent calendar IPAs off with.
+
 
