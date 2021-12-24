@@ -235,7 +235,7 @@ It's difficult to tell how much of the acidity is coming from the fruit vs the b
 I don't want to be two fussy about "the only real sours are kettle soured" or whatever, I'm not past stirring citric acid crystals into a punk IPA on occasion, I rate this. 
 
 
-23: Simcoe on Citra Cryo Neipa : 6.9%
+## 23: Simcoe on Citra Cryo Neipa : 6.9%
 
 I think this is the last bog standard IPA in the box, although it's a decent one. 
 Pale colour, cloudy, light. 
@@ -243,4 +243,12 @@ Somewhat citrissy hoppy flavour; sharp and tangy.
 
 While they've been a mixed bag on the whole, I'm more than happy enough with this to send the advent calendar IPAs off with.
 
+## 24: Sabro on Citra Cryo Quadruple IPA : 15%
+eye: hazy, nose: coconut, taste: citrus
 
+The penultimate beer in the box; although the ultimate beer in the sense that doesn't advent end on the 24th? I for one consider tomorrow's beer to be a bonus.
+
+Getting flashbacks to the first beer in the box, it's damn sweet and damn heavy, quite smooth, very tiny rebel.
+Looks similar to beer no 1, too, gold and murky.
+I'm impressed that they're able to get so much coconut flavour with just hops, barley and wheat; very much _not just_ another IPA, which I approve of.
+15% is very much a chonky beer; it's left me with a pleasant, warm and fuzzy feeling. 
