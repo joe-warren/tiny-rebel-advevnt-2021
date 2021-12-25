@@ -252,3 +252,18 @@ Getting flashbacks to the first beer in the box, it's damn sweet and damn heavy,
 Looks similar to beer no 1, too, gold and murky.
 I'm impressed that they're able to get so much coconut flavour with just hops, barley and wheat; very much _not just_ another IPA, which I approve of.
 15% is very much a chonky beer; it's left me with a pleasant, warm and fuzzy feeling. 
+
+## 25: Rum Soaked Machiato Imperial Stout - 10%
+eye: black, nose: coffee, taste: warming
+
+Like the first dark beer in the box (imperial porter, No. 3), it's worth caveating this with the fact that I'm very much a fan if dark beers, so this is entirely up my street.
+With that said, this is really nice, rich and full bodied, after yesterday's, 10% almost seems weak, but the strength is spot on for this kind of beer. 
+It's coffee forward, but the rum does come through, and, in my opinion, really works.
+Essentially providing a sweet molassy flavour that lingers on the tongue, kind of like eating spoonfuls of brown sugar. 
+Coffee dominates the scent, and it pretty much smells just like any dark coffee beer.
+
+Like yesterday, quite tiny rebel; goes big rather than going home.  
+Again, it might just be that this is what I'm into, but this was exactly the way I wanted to finish off the box.
+
+
+
